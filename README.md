@@ -1,2 +1,2 @@
 
-[لمبة.docx](https://github.com/user-attachments/files/17035515/default.docx)
+[لمبة.docx](https://github.com/user-attachments/files/17039913/default.docx)
